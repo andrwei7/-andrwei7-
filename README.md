@@ -1,3 +1,1 @@
-# -andrwei7-
-
-cine fura asta i bulangiu
+what can i type here?
